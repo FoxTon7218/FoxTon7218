@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Flame Antony
 - 👀 I’m interested in  
-- 🌱 I’m learning python and c++
+- 🌱 I’m learning nothing imma stupid
 - 📫 How to reach me: discord FoxTon#7218
 
 <!---
